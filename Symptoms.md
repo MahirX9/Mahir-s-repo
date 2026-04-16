@@ -1,2 +1,5 @@
 Unusally Large Stomach
-Loose
+Losing Hair
+Pain in Testicles
+Vericocele?
+POIS fatigue and forgetfulness
