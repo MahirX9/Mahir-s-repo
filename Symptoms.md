@@ -8,4 +8,4 @@ POIS fatigue and forgetfulness
 Easily Sweating
 IBS?
 
-Decision: Require to immediately fix diet, sleep and exerc
+Decision: Require to immediately fix diet, sleep and exercise.Need a tight grip on it. No compromise #Decision
