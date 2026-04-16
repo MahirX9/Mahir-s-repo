@@ -1,0 +1,1 @@
+Ami khali vule jai onek kisu. Amar memory management er upor kisu course/learning korar dorkar ase + health er dik thekeo eta concerning. Ekhane diet korte hobe proper. Exercise kora lagbe. Routine fix kora lagbe. Amar nijekeo evabe vision statement dite hobe je, Ami vulomona lok noi. Ami emon lok 
