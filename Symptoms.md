@@ -8,6 +8,7 @@ POIS fatigue and forgetfulness
 Easily Sweating
 IBS?
 Majhe majhe pen. for no reason khara hoye thake ar pura body te muscle gula mone hoy jeno constricted hoye gese. Armora vangte mon chay. kemn jeno pain kore.heartbeat bere jay.nishash nite koshto hoy.
-
+peter bivinno point e chaap dile bethar beparta ekhno ase
+dopamine problem, gaming addiction ase
 
 Decision: Require to immediately fix diet, sleep and exercise.Need a tight grip on it. No compromise #Decision
