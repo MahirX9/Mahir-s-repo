@@ -5,4 +5,5 @@
 5. Amar ekta problem ase. Sheta holo jhamela erate ami nijer financial khoti kori onekshomoy. Just because ami manushke face korte chai na. Beshi explain korte chai na. Ei problem er root ber kora joruri
 6. Amar sleep routine kisutei fix korte partisina. Amar mone hoy sleep er dike beshi nojor na diye amar borong namajer dike drishti deya dorkar. Oita thik rakhatai priority howa ucit
 7. Amar pet ta oshavabik mota hoye gese [[Symptoms ]] body weak. PE er problem. Headache.IBS.Easy sweating. Egula tension er bishoy.Need immediate fix.Or will be going south most likely.Allah na korun.
-8. 
+8. Iman durbol hoye jacche. Namaje mon nai. Quran tilwat kora hocche na
+9. I get lost in my thoughts infront of her.I shouldn't do that i guess. A man in control doesn't worry much
