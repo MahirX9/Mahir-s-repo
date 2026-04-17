@@ -1,6 +1,6 @@
 Unusally Large Stomach
 Losing Hair
-Pain in Testicles
+Pain in Testicles!!! Very Alarming. I think this needs my #urgent_attention
 PE!!
 Low Testosterone
 Vericocele?
