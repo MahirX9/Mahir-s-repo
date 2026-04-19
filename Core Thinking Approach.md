@@ -1,0 +1,1 @@
+In any system or method or platform of dealing with strangers and /or the public, is to not be blind about what information is there t
