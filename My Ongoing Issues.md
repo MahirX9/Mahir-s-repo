@@ -1,5 +1,5 @@
 1.  [[Ami Khali Vule Jai]]
-2. 
+2.  [[Parents Getting Old]]
 3. Abbu ammu amar upor rely korte partesena je ami shongsharer hal dhorte parbo. Edike amar wife o early riser / routined na. She does not have a routine at all. Like me .
 4. Amar ei job ta jotoi lucrative hok, etate ekta biroktikor problem ase. Sheta holo bondor e ghush deyar beparta. Amii Allahr kase touba kortesi jodi etate amar kono dosh hoye jay, gunah hoye thake. Amar ashole purpd9me arekta job khoja ucit. Tobe ekta bepar hocche ekhane ghush jinishta amr upor chapano.Ar dhorjo dhorle ekhane boshe masters kore laldia project ta shesh kore nite pari.erkm govt project arekta abar kokhn pabo. Aro ekta bishoy je bdjobs e ekhn job pacchi na.Tone boss creates a lot of pressure 
 5. Amar ekta problem ase. Sheta holo jhamela erate ami nijer financial khoti kori onekshomoy. Just because ami manushke face korte chai na. Beshi explain korte chai na. Ei problem er root ber kora joruri
@@ -10,3 +10,6 @@
 10. Somoy pacchi na mone hocche.Gaming addiction dur hocche na
 
 [[Am I Lazy or Ill]]
+
+---
+[[Me]]
