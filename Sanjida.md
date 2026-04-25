@@ -6,3 +6,4 @@ Can Take her out to #placestogo bdr math, boropool, saint martin, bandarban
 She is a DVM graduate
 Has health issue obesity
 May have diabetes
+I like her a lot. She has the personality i looked for and i believe i NEEDED in a wife. She is beau
