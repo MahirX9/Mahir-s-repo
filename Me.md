@@ -2,3 +2,5 @@
 [[My Finances]]
 [[My blessings]]
 [[My Ongoing Issues]]
+[[My Vision Statement]]
+
