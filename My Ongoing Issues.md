@@ -12,4 +12,3 @@
 [[Am I Lazy or Ill]]
 
 ---
-[[Me]]
