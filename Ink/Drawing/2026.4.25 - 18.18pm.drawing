@@ -1,7 +1,8 @@
 {
 	"meta": {
 		"pluginVersion": "0.3.4",
-		"tldrawVersion": "2.4.3"
+		"tldrawVersion": "2.4.3",
+		"previewIsOutdated": true
 	},
 	"tldraw": {
 		"document": {
