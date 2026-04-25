@@ -8,3 +8,5 @@
 8. Iman durbol hoye jacche. Namaje mon nai. Quran tilwat kora hocche na
 9. I get lost in my thoughts infront of her.I shouldn't do that i guess. A man in control doesn't worry much
 10. Somoy pacchi na mone hocche.Gaming addiction dur hocche na
+
+[[Am I Lazy or Ill]]
