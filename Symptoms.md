@@ -11,4 +11,4 @@ Majhe majhe pen. for no reason khara hoye thake ar pura body te muscle gula mone
 peter bivinno point e chaap dile bethar beparta ekhno ase
 dopamine problem, gaming addiction ase
 
-Decision: Require to immediately fix diet, sleep and exercise.Need a tight grip on it. No compromise #Decision
+Decision: Require to immediately fix diet #diet [[Food to Eat]] sleep and exercise.Need a tight grip on it. No compromise #Decision
