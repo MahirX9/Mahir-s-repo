@@ -1,2 +1,2 @@
 [[Symptoms]]
-[[Food to Eat]]
+[[Food, Diet & Exercise]]
