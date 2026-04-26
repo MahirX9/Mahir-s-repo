@@ -1,0 +1,2 @@
+[[Symptoms]]
+[[Food to Eat]]
