@@ -5,5 +5,8 @@ https://youtu.be/rbcXL4DakH8?si=XlZtbUvIq7vso3hY
 
 Omega 3 Fatty Acid Fish, Running+Weightlifting, Fiber Rich Food, Water Before Eating, Protein, Low Stress, Adequate Sleep
 
-[[Increase T]]
+https://salihatfood.com/sexual-health/men/testosterone/low/ways-to-increase/
+
+To increaas T, grassfed beef, D3, Zinc and Magnesium, Nuts, 
+
 
