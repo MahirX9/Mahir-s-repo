@@ -7,6 +7,6 @@ Omega 3 Fatty Acid Fish, Running+Weightlifting, Fiber Rich Food, Water Before Ea
 
 https://salihatfood.com/sexual-health/men/testosterone/low/ways-to-increase/
 
-To increaas T, grassfed beef, D3, Zinc and Magnesium, Nuts, Egg Yolk, Borom Citrate and SHBG, 
+To increaas T, grassfed beef, D3, Zinc and Magnesium, Nuts, Egg Yolk, Borom Citrate and SHBG, 600 Mg Ashwagandha daily, 
 
 
