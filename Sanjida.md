@@ -7,3 +7,4 @@ She is a DVM graduate
 Has health issue obesity
 May have diabetes
 I like her a lot. She has the personality i looked for and i believe i NEEDED in a wife. She is beautiful, not super pretty but cute and beautiful enough to make me satisfied. She shows affection. Is hardworking. Has good common sense. Some of hsr actions triggger me. Her sense of porda is at 78 to 80%. i would appreciate a 88 to 92 %
+[[Our First Quarrel]]
