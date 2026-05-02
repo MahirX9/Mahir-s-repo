@@ -1,5 +1,10 @@
 [[Two Children]]
 [[A land]]
-[[Established Business]]
+[[Established Business]] , [[Own Consultancy Firm]]
 [[Masters and phD]]
 [[Own House with Sw.Pool]]
+[[Clinic for SanZ]]
+
+
+[[My Vision Statement]]
+[[Me]]
