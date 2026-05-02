@@ -1,7 +1,7 @@
 [[Who am I]]
 [[My People]]
 [[My blessings]]
-[[My Ongoing Issues]]
+[[My Issues]]
 
 [[My Finances]]
 [[My Health]]

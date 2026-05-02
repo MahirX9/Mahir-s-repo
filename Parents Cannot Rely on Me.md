@@ -1,0 +1,1 @@
+a je ami shongsharer hal dhorte parbo. Edike amar wife o early riser / routined na. She does not have a routine at all. Like me .
