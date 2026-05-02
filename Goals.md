@@ -1,1 +1,5 @@
 [[Two Children]]
+[[A land]]
+[[Established Business]]
+[[Masters and phD]]
+[[Own House with Sw.Pool]]
