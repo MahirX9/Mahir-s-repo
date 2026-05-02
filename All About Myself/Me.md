@@ -1,10 +1,20 @@
+[[Who am I]]
 [[My People]]
-[[My Finances]]
 [[My blessings]]
 [[My Ongoing Issues]]
-[[Who am I]]
+
+[[My Finances]]
 [[My Health]]
+	[[My Symptoms]]
+	
+	
+	
+
 [[My Goals]]
+
+
+
+
 
 
 

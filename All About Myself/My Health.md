@@ -1,3 +1,3 @@
-[[Symptoms]]
+[[My Symptoms]]
 [[Food, Diet & Exercise]]
 
