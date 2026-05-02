@@ -2,7 +2,9 @@
 [[My Finances]]
 [[My blessings]]
 [[My Ongoing Issues]]
-[[My Vision Statement]]
+[[Who am I]]
 [[My Health]]
+[[My Goals]]
+
 
 
