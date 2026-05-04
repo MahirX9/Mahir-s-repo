@@ -1,2 +1,2 @@
-1. **Analyse Risks Before Every Interaction**: In any system or method or platform of dealing with strangers and /or the public, is to not be blind about what information is there that cannot be verified and is simply based on trust.Tha is where most people get fooled. First analyse what you know, what you don't. What information us unknown, and because of that should you he fooled, what loss can occur.
+
 [[How to Think Clearly]]
