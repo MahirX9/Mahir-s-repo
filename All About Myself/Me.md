@@ -6,10 +6,11 @@
 [[My Finances]]
 [[My Health]]
 	[[My Symptoms]]
+	[[Food, Diet & Exercise]]
+	 
 	
 	
-	
-
+[[My Charecter]]
 [[My Goals]]
 
 
