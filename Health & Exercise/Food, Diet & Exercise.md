@@ -10,3 +10,5 @@
 3. To increaas T:
 	grassfed beef, D3, Zinc and Magnesium, Nuts, Egg Yolk, Borom Citrate and SHBG, 600 Mg Ashwagandha daily, 
 	https://salihatfood.com/sexual-health/men/testosterone/low/ways-to-increase/
+4. [[Healthy Habits]]
+5. 
