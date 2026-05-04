@@ -1,6 +1,7 @@
 1. Only open youtube with a question or query in mind. Preset what you are going to watch and then open the app instead of scrolling whatever comes next
 2. Understand what actual humility is [[Humility & Arrogance]]
-3. 
+3. [[Understand Common Biases]]
+4. 
 
 
 
