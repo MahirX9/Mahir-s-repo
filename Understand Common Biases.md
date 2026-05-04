@@ -10,6 +10,8 @@ The 12 Biases Explained:
 7. Outcome Bias (5:18): Judging the quality of a decision solely by its result rather than the reasoning process used at the time.
 8. Overconfidence (6:11): Becoming too confident due to past successes, leading to reliance on gut feelings rather than facts.
 9. Placebo Bias (6:52): Believing something will have an effect can actually cause that effect to occur.
+[[This is why maybe positive people experience a positive life]]
+
 10. Survivorship Bias (7:44): Making judgments based only on successful "survivors" while ignoring the vast majority of failures.
 11. Selective Perception (8:31): Filtering out information that contradicts your beliefs while focusing on what matches your frame of reference.
 12. Blind Spot Bias (9:06): The inability to recognize your own biases while being quick to point out biases in others.
