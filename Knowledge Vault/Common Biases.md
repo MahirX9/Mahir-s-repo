@@ -16,3 +16,4 @@ Maybe this is why positive people  may experience a positive life #core-truth
 11. Selective Perception (8:31): Filtering out information that contradicts your beliefs while focusing on what matches your frame of reference.
 12. Blind Spot Bias (9:06): The inability to recognize your own biases while being quick to point out biases in others.
 
+#Bias #P

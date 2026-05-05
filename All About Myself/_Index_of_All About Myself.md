@@ -14,6 +14,7 @@
  [[All About Myself/My Health|My Health]]
  [[All About Myself/My Issues|My Issues]]
  [[All About Myself/My Symptoms|My Symptoms]]
+ [[All About Myself/My Target Habits|My Target Habits]]
  [[All About Myself/Our First Quarrel|Our First Quarrel]]
  [[All About Myself/Own House with Sw.Pool|Own House with Sw.Pool]]
  [[All About Myself/Parents Cannot Rely on Me|Parents Cannot Rely on Me]]
