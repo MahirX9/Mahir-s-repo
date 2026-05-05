@@ -1,6 +1,7 @@
 [[I am a person with Integrity]]
 [[I am someone who can think clearly]]
-[[Not Distracted by Pleasure]]
+[[I am a Disciplined Person]]
+
 
 
 

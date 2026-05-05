@@ -1,0 +1,1 @@
+> A Man Who Lacks Purpose, Distracts himself with Pleasure
