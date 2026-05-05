@@ -1,4 +1,4 @@
-## Morning Routine Check
+### Morning Routine Check
 - [ ] Brush Korso?
 - [ ] Fazr?
 - [ ] Nasta?
@@ -6,16 +6,13 @@
 - [ ] Pani?
 - [ ] Green Tea?
 - [ ] News?
-##  Brain Dump / Plan Day / Tasks
-
-
-- [ ] Day Plan Complete?
-
-## Today's Notes
+---
+## Morning Notes
 
 
 
-## Night Routine Checklist
+___
+### Night Routine Check
 - [ ] Prayed Five Wakt Salat?
 - [ ] Jamat?
 - [ ] Kaja roja & salat aday korso?
@@ -23,5 +20,7 @@
 - [ ] Diet Succeeded?
 - [ ] Relationships?
 - [ ] Quran?
-- [ ] Anything to mitigate
+- [ ] Anything to mitigate [[_My Issues]] ?
 
+---
+## Night Notes
