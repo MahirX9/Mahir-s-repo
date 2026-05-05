@@ -6,8 +6,6 @@
  ![[Health & Exercise/_Index_of_Health & Exercise|_Index_of_Health & Exercise]]
  [[Common Biases|Common Biases]]
  [[Healthy Habits|Healthy Habits]]
- [[I am a Disciplined Person|I am a Disciplined Person]]
- [[I am someone who can think clearly|I am someone who can think clearly]]
  [[Ink/_Index_of_Ink|_Index_of_Ink]]
  [[Maybe this is why maybe positive people experience a positive life|Maybe this is why maybe positive people experience a positive life]]
  [[My Charecter|My Charecter]]
