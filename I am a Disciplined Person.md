@@ -1,3 +1,3 @@
 > A Man Who Lacks Purpose, Distracts himself with Pleasure
 
-![[Pasted image 20260505145202.png]] I cannot be someone without purpose. I must 
+ I cannot be someone without purpose. I must not get distracted by simple, easy pleasure which are ultimately destructive and dangerous.
