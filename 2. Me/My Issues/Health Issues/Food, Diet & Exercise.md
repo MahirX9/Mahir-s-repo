@@ -1,3 +1,6 @@
+---
+tags: spaces://#symptoms
+---
 
 1. **To reduce [[Fat Belly]]
 	Take carrots, spinach, tomato. Green Tea
