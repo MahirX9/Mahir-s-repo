@@ -1,14 +1,13 @@
-ADHD or Brain Fog
-Unusally Large Stomach
-Losing Hair
-Pain in Testicles!!! Very Alarming. I think this needs my  #tasks/health 
-PE!!
-Low Testosterone
-Vericocele?
-POIS fatigue and forgetfulness
-Easily Sweating
-IBS?
-Majhe majhe pen. for no reason khara hoye thake ar pura body te muscle gula mone hoy jeno constricted hoye gese. Armora vangte mon chay. kemn jeno pain kore.heartbeat bere jay.nishash nite koshto hoy.
+[[ADHD or Brain Fog]]
+[[Fat Belly]]
+[[I am losing hair]]
+[[T. Pain]]
+[[Might Have PE]]
+[[I probably have VCLE]]
+[[POIS fatigue and forgetfulness]]
+[[Easy Sweating]]
+[[IBS]]
+Majhe majhe pen. for no reason khara hoye thake ar pura body te muscle gula mone hoy jeno constricted hoye gese. Armora vangte mon chay. kemn jeno pain kore.heartbeat bere jay.nishash nite koshto hoy
 peter bivinno point e chaap dile bethar beparta ekhno ase
 dopamine problem, gaming addiction ase
 
