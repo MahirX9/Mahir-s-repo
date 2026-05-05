@@ -1,0 +1,1 @@
+I do have it after ejaculation. Need to keep an eye on occurance, duration, intensity, location etc #tasks/health 
