@@ -8,4 +8,4 @@ I Should be a person who is easygoing.
 
 Easy going howai dorkar. People should feel motivated, good, welcomed and energized around me. 
 
-#charecter #decisions 
+#charecter  #hadith 
