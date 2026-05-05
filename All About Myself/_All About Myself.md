@@ -3,8 +3,6 @@
  ![[All About Myself/My People/_My People|_My People]]
  ![[All About Myself/Who Am I/_Who Am I|_Who Am I]]
  [[All About Myself/Ami Khali Vule Jai|Ami Khali Vule Jai]]
- [[All About Myself/Food, Diet & Exercise|Food, Diet & Exercise]]
- [[All About Myself/How to Think Clearly|How to Think Clearly]]
  [[All About Myself/My blessings|My blessings]]
  [[All About Myself/My Charecter|My Charecter]]
  [[All About Myself/My Finances|My Finances]]
