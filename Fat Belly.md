@@ -1,0 +1,1 @@
+Amar pet ta oshavabik mota hoye gese body weak. PE er problem. Headache.IBS.Easy sweating. Egula tension er bishoy.Need immediate fix.Or will be going south most likely.Allah na korun. [[My Symptoms]] page e bistarito lekha ase amar symptoms gula.

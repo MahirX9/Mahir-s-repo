@@ -1,0 +1,1 @@
+Amar ekta problem ase. Sheta holo jhamela erate ami nijer financial khoti kori onekshomoy. Just because ami manushke face korte chai na. Beshi explain korte chai na. Ei problem er root ber kora joruri
