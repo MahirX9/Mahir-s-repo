@@ -1,0 +1,1 @@
+I get lost in my thoughts infront of [[SanZ]] .I shouldn't do that i guess. A man in control doesn't worry much
