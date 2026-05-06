@@ -5,5 +5,9 @@
 - Keys
 - Phone
 - Charger and Cable
-- Multitool 
+- Multitool #tasks/buy 
+- Slim Water Bottle #tasks/buy 
+- First Aid Kit #tasks/buy 
+- Waterproof polybag
+- 
 - 
