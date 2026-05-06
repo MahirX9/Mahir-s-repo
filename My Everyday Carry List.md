@@ -9,5 +9,7 @@
 - Slim Water Bottle #tasks/buy 
 - First Aid Kit #tasks/buy 
 - Waterproof polybag
-- 
+- Flashlight #tasks/buy 
+- Mouth Freshner
+- Whistle #tasks/buy 
 - 
