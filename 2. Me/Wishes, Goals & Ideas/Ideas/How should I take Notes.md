@@ -7,4 +7,4 @@ Amar mone hoy digital vs analog debate ta te somossha ase. jehetu
 - Ekta shundor Diary kinsilam.Ota dekhlei kisu likhte iccha kortese. Tai dotanay asi obsidian ar diary er moddhe.Obisidian onek feature rich eta ekta plus point.Amar ghum ashtese.Probably [[Fatigue Due to Pois]]]]
 ## Task Management and Graph View
 
-jodi ami যদি আমি আমার নোটগুলো কে আমার টাচ গুলাকে একেকটা লিংক নট হিসেবে দেখি তাহলে কিন্তু আমার কাজগুলো তাহলে কিন্তু আমার কাজগুলো গ্রাম ভিউতে সুন্দরভাবে লিঙ্ক উপায়ে দেখাবে এবং আমি এগুলো যে
+jodi ami যদি আমি আমার নোটগুলো কে আমার টাস্ক গুলাকে একেকটা লিংক নট হিসেবে দেখি তাহলে কিন্তু আমার কাজগুলো graph ভিউতে সুন্দরভাবে লিঙ্ক উপায়ে দেখাবে এবং আমি এগুলো Amar goals , worries etc নোটের সাথে sorashori লিঙ্ক করতে পারবো. I think this is a brilliant ide
