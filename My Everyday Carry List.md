@@ -1,1 +1,9 @@
-- A 10mw powerbank with pd fast 
+- A 10mw powerbank with pd fast charge support.lithiam polymer battery.
+- Wristwatch with alarm and calendar. Waterproof
+- Neckband
+- Wallet
+- Keys
+- Phone
+- Charger and Cable
+- Multitool 
+- 
