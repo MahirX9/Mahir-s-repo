@@ -1,7 +1,8 @@
 {
 	"meta": {
 		"pluginVersion": "0.3.4",
-		"tldrawVersion": "2.4.3"
+		"tldrawVersion": "2.4.3",
+		"previewIsOutdated": true
 	},
 	"tldraw": {
 		"document": {
@@ -19,6 +20,46 @@
 					"name": "Handwritten Note",
 					"index": "a1",
 					"typeName": "page"
+				},
+				"shape:Vn2qC4lnYxiIotEGjG60o": {
+					"x": 1082.0435682932537,
+					"y": 970.4047139485677,
+					"rotation": 0,
+					"isLocked": false,
+					"opacity": 1,
+					"meta": {},
+					"id": "shape:Vn2qC4lnYxiIotEGjG60o",
+					"type": "draw",
+					"props": {
+						"segments": [
+							{
+								"type": "free",
+								"points": [
+									{
+										"x": 0,
+										"y": -1.21,
+										"z": 0.15
+									},
+									{
+										"x": 0,
+										"y": -3.63,
+										"z": 0.15
+									}
+								]
+							}
+						],
+						"color": "black",
+						"fill": "none",
+						"dash": "draw",
+						"size": "m",
+						"isComplete": true,
+						"isClosed": false,
+						"isPen": true,
+						"scale": 1
+					},
+					"parentId": "page:3qj9EtNgqSCW_6knX2K9_",
+					"index": "a1",
+					"typeName": "shape"
 				}
 			},
 			"schema": {
@@ -55,7 +96,7 @@
 		},
 		"session": {
 			"version": 0,
-			"currentPageId": "page:page1",
+			"currentPageId": "page:3qj9EtNgqSCW_6knX2K9_",
 			"exportBackground": true,
 			"isFocusMode": false,
 			"isDebugMode": true,
@@ -63,7 +104,7 @@
 			"isGridMode": true,
 			"pageStates": [
 				{
-					"pageId": "page:page1",
+					"pageId": "page:3qj9EtNgqSCW_6knX2K9_",
 					"camera": {
 						"x": 0,
 						"y": 0,
