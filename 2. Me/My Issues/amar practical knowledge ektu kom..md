@@ -9,4 +9,8 @@ Specifically,
 6. **BIKE CHALATE PARI NA**
 7. **CAR CHALATE PARI NA**
 8. **SWIMMING** Pari ja
-9. 
+9. Hotat critical emergency situation e ki korte hobe jani na. 
+10. First Aid knowledge nai
+11. Diabetic knowgedge nai
+12. Event organzie korar full capacity nai
+13. Manush manage korar ultima
