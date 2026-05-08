@@ -14,5 +14,5 @@ Specifically,
 11. Diabetic knowgedge nai
 12. Event organzie korar full capacity nai
 13. Manush manage korar ultimate skill nai
+based on above ami ekta skillchart banate chacchi mind map style.Jeta expand hote thakbe point, subpoint, sub ject , sub subject evabe. [[My Skill Chart]]
 
-based on above ami ekta skillchart banate chacchi mind map style.Jeta expand hote thakbe point, subpoint, sub ject , sub subject evabe
