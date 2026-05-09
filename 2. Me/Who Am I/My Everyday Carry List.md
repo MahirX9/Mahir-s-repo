@@ -6,7 +6,7 @@
 - Phone
 - Charger /Adapter
 - Cables
-- Speaker - Portable Jbl go 4
+- Speaker - Portable (Jbl go 4, anker)
 - Multitool #tasks/buy 
 - Slim Water Bottle #tasks/buy 
 - First Aid Kit #tasks/buy 
@@ -15,4 +15,5 @@
 - Mouth Freshner
 - Whistle #tasks/buy 
 - Breath Mint
+- Waterproof Bag
 
