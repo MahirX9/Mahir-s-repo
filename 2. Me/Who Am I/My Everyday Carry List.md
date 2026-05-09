@@ -4,7 +4,9 @@
 - Wallet
 - Keys
 - Phone
-- Charger and Cable
+- Charger /Adapter
+- Cables
+- Speaker - Portable Jbl go 4
 - Multitool #tasks/buy 
 - Slim Water Bottle #tasks/buy 
 - First Aid Kit #tasks/buy 
