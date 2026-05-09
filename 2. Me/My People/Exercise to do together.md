@@ -1,2 +1,3 @@
 [[SanZ]]
-- List our favourite relstives by descending order together
+- List our favourite relatives by descending order together and try to guess each others favourite's rank or positions
+- 
