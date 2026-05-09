@@ -16,4 +16,8 @@
 - Whistle #tasks/buy 
 - Breath Mint
 - Waterproof Bag
+- Atomiser
+- Airtag
+- Smartwatch (Amazefit Active 2)
+- 
 
