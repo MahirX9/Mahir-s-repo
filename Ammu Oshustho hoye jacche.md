@@ -2,4 +2,6 @@ Ammur ghum theke uthle shokale naki shorier uporer omgsho buk theke upore ebong 
 Ammur paa e vericose vein ase
 Ammur hatu duita onekdin (2y) theke betha
 Ammu weight komaite partesena
-Ammur ekhon pith ar komor bethao s
+Ammur ekhon pith ar komor bethao shuru hoise
+Doctor weight komate bolse [[]]
+#worries 
