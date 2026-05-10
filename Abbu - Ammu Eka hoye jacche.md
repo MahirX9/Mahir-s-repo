@@ -1,0 +1,1 @@
+Waziha o thaklo na. Vabi oke n
