@@ -1,6 +1,9 @@
+[[Islamic Jurisdictions]]
 
 
-History of Bangladesh and Political Landscape
+[[History]]
+
+
 Economy. How money and banking works
 What is deobond, darul ulum, kaomi
 ## Practical Knowledge 
