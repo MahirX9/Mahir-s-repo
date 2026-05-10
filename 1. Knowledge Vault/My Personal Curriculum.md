@@ -1,13 +1,9 @@
 [[Islamic Jurisdictions]]
-
-
 [[History]]
-
-
-Economy. How money and banking works
-What is deobond, darul ulum, kaomi
+[[Economy.]]
 ## Practical Knowledge 
 [[The Art of Cooking]]
+[[Swimming]]
 
 
 

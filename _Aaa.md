@@ -5,6 +5,7 @@
 -  ![[I am working on/_I am working on|_I am working on]]
 -  [[_fit/__fit|__fit]]
 -  [[3. Templates/_3. Templates|_3. Templates]]
+-  [[Economy.|Economy.]]
 -  [[History|History]]
 -  [[IMG_20260508_130730.jpg|IMG_20260508_130730.jpg]]
 -  [[IMG_20260508_130734.jpg|IMG_20260508_130734.jpg]]

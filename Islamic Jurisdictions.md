@@ -3,3 +3,4 @@
 [[Rules of Hajj and Umrah]]
 [[Cost of Hajj and Umrah]]
 [[Islamic Land Law and inheritance]]
+[[What is deobond, darul ulum, kaomi]]
