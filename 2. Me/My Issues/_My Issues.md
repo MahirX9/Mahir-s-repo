@@ -5,6 +5,7 @@
 -  [[2. Me/My Issues/Health Issues/_Health Issues|_Health Issues]]
 -  [[2. Me/My Issues/I get Lost|I get Lost]]
 -  [[2. Me/My Issues/I self-sabotage my finances|I self-sabotage my finances]]
+-  [[2. Me/My Issues/Kheal korlam ei boyosheo abbur beshirvag somoyta bairei, chamber ei kate|Kheal korlam ei boyosheo abbur beshirvag somoyta bairei, chamber ei kate]]
 -  [[2. Me/My Issues/My Finances|My Finances]]
 -  [[2. Me/My Issues/My Job is Stessful|My Job is Stessful]]
 -  [[2. Me/My Issues/Parents Cannot Rely on Me|Parents Cannot Rely on Me]]
