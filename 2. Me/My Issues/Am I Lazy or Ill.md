@@ -1,0 +1,1 @@
+Ami ki ashole ekjon lazy procastinator [[I Procastinate]] naki amar [[POIS]] syndrome amake active hote badaha dicche? eta ekta question jar answer amar jana dorkar/
