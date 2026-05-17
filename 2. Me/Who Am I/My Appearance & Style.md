@@ -5,4 +5,4 @@ I am losing hair. So not much style can be done. So i cannot have very long hair
 I must express this through my appearance & impression that [[I take care of myself]] This should be very clear. 
 
 [[My Everyday Carry List]]
-[[I am a Resourceful Person]]
+[[I want to be a resourceful person]]
