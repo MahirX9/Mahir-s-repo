@@ -6,7 +6,7 @@
 -  ![[I am working on/_I am working on|_I am working on]]
 -  [[_fit/__fit|__fit]]
 -  [[Attachments/_Attachments|_Attachments]]
--  [[I need to carry vaseline with me|I need to carry vaseline with me]]
+-  [[Core Thinking Approach|Core Thinking Approach]]
 -  [[Ink/_Ink|_Ink]]
 -  [[Islamic Jurisdictions|Islamic Jurisdictions]]
 -  [[My Symptoms|My Symptoms]]
