@@ -5,7 +5,7 @@
  [[Want to be a person with Integrity|Want to be a person with Integrity]]
  [[I want to be a resourceful person|I want to be a resourceful person]]
  [[I want to be easygoing|I want to be easygoing]]
- [[2. Me/Who Am I/I am someone who can think clearly|I am someone who can think clearly]]
+ [[i want to have clarity and Sharpness of thought|i want to have clarity and Sharpness of thought]]
  [[2. Me/Who Am I/I take care of myself|I take care of myself]]
  [[2. Me/Who Am I/I try to be as efficient and as low friction as possible|I try to be as efficient and as low friction as possible]]
  [[2. Me/Who Am I/My Appearance & Style|My Appearance & Style]]
