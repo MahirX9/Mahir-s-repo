@@ -5,6 +5,7 @@
 -  ![[3. Templates/_3. Templates|_3. Templates]]
 -  ![[I am working on/_I am working on|_I am working on]]
 -  [[_fit/__fit|__fit]]
+-  [[[Symptoms|[Symptoms]]
 -  [[Attachments/_Attachments|_Attachments]]
 -  [[I need to carry vaseline with me|I need to carry vaseline with me]]
 -  [[Ink/_Ink|_Ink]]
