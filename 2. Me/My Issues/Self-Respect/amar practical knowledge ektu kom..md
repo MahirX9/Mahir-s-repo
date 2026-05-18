@@ -1,5 +1,5 @@
 Ami kisu practical knowledge kom jani. 
-Specifically,
+Specifically, #weakness 
 
 1. **Rastaghat kom chini**. konta kon elaka shohoje chini na
 2. Mental Math kom pari.Hotat onek math mathay ashe na
@@ -11,8 +11,8 @@ Specifically,
 8. **SWIMMING** Pari ja
 9. Hotat critical emergency situation e ki korte hobe jani na. 
 10. First Aid knowledge nai
-11. Diabetic knowgedge nai
-12. Event organzie korar full capacity nai
+11. Diabetic Emergency knowledge nai
+12. Event organize korar full capacity nai
 13. Manush manage korar ultimate skill nai
 based on above ami ekta skillchart banate chacchi mind map style.Jeta expand hote thakbe point, subpoint, sub ject , sub subject evabe. [[My Skills List]]
 
