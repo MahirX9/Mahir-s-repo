@@ -8,11 +8,12 @@ tags: spaces://#symptoms
 
 2. To Iose weight : 
 	
-Weight Loss Plan 1
+[[Weight Loss Plan 1]]
 
 	https://youtu.be/rbcXL4DakH8?si=XlZtbUvIq7vso3hY
 
 https://youtu.be/uQZU2AZTgvE
+
 
 [[Another Weight Loss Plan]]
 
