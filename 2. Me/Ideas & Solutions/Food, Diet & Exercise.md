@@ -7,15 +7,8 @@ tags: spaces://#symptoms
 	https://youtube.com/watch?v=Zt6WaTBnj7E&si=lXH6V4X3R-dU7Qzt
 
 2. To Iose weight : 
-	
 [[Weight Loss Plan 1]]
-
-	https://youtu.be/rbcXL4DakH8?si=XlZtbUvIq7vso3hY
-
-https://youtu.be/uQZU2AZTgvE
-
-
-[[Another Weight Loss Plan]]
+[[Weight Loss Plan 2]]
 
 
 3. To increaas T #POIS:
