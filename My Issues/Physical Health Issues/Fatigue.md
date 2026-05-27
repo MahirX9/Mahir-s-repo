@@ -1,2 +1,0 @@
-
-Due to #POIS 

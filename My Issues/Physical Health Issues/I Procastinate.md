@@ -1,1 +1,0 @@
-Ami procastinate kori. Onek kaj fele rakhi. Jar jonno amar vugteo hoy. Eta thik noy. For example ekhon ami quarterly report e haat dite paritisna for some reason. This has been going on for a week or so. [[I cannot seem to put myself to work unless there is an external pressure.]]

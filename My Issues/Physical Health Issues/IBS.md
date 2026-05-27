@@ -1,1 +1,0 @@
-I might have IBS. As i cannot eat a variety of food. I get bad stomach.

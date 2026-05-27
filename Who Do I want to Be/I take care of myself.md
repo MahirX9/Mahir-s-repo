@@ -1,1 +1,0 @@
-I Keep my Nails Short, Wear clean clothes, Shower & Brush. Use Moisturizers

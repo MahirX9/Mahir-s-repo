@@ -1,1 +1,0 @@
-Abbu Ammu Old hoi jacche. Ammur onek sharirik problem dekha dicche jegula keu attend kortesena. Abbu osudh khawacche thiki. Onnodike abbu nijeo ekhon osustho hoye portese

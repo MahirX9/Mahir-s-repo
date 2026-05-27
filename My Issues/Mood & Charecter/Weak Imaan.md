@@ -1,1 +1,0 @@
-Iman durbol hoye jacche. Namaje mon nai. Quran tilwat kora hocche na
