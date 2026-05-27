@@ -1,0 +1,1 @@
+I sweat easily when climbing stairs or walking. Not good. I run out of breath much faster than i did before. Maybe my anatomical age is too high. Which is alarming.
