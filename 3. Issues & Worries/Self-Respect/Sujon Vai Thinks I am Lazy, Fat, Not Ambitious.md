@@ -1,0 +1,4 @@
+#People/Sujon_vai '
+
+And he is not very wrong. He is also not a bad person to tell me what he thinks. Because i think he is a very good person. Very cordial. He told me this today [[2026-05-18]]
+
