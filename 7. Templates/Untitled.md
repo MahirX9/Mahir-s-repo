@@ -11,6 +11,11 @@
 
 # Thoughts / Brain Dump section
 
-its .... now. I need to do.....today
+its .... now. I need to do.....
 
-- [ ] Time-block in google calenda
+## Tasklist
+
+- [ ] TOP focus today:
+- [ ] Other priority tasks:
+- [ ] Time-block in google calendar
+
