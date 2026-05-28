@@ -9,18 +9,7 @@
 | Relationships are yellow. Fix health first      | Never Be angry at your parents                  | Treat your wife well, she is gift from God | Go out with others and to others home sometimes without invitation |
 
 # Thoughts / Brain Dump section
-its .... now. I need to do.....
+its .... now. I need to do....
 
 ---
-## Tasklist (copy from below)
----
-# Journal Section
-
-....
-
----
-# Today's Learning / quote of the day
-
-
----
-# Rollover to-dos (copy from here)
+# Rollover to-dos
