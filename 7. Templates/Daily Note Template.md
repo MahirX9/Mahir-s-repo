@@ -1,5 +1,4 @@
-{{Date}}
-
+{{time}}
 ## Key Things to Always Keep in Mind
 
 | Imaan is weak. Start on time salat, Quran study | La haola wala kuwata Illah Billah Remember this | You Lack honesty and sincerity. Be sincere | Learn more. Buy a Tafsir hardcopy                                  |
@@ -13,18 +12,7 @@
 its .... now. I need to do.....
 
 ---
-## Tasklist
-- [ ] ## Today
-	- [ ] TOP focus today:
-	- [ ] Other priority tasks:
-	- [ ] Time-block in google calendar
-- [ ] ## Tomorrow
-	- [ ] ...
-- [ ] ## ...day
-	- [ ] ....
-- [ ] ## Unscheduled
-	- [ ] ....
-	- [ ] ....
+## Tasklist (copy from below)
 ---
 # Journal Section
 
@@ -35,4 +23,4 @@ its .... now. I need to do.....
 
 
 ---
-# Rollover to-doa
+# Rollover to-dos (cop)
