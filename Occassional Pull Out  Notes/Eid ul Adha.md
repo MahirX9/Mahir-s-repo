@@ -7,3 +7,5 @@ Sfficient water in above tank
 CC camera
 Sholar Jharu
 Bakorkhani
+Keep stomach ready
+sharpen da boti
