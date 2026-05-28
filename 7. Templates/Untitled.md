@@ -14,9 +14,14 @@
 its .... now. I need to do.....
 
 ## Tasklist
-### Today
-- [ ] ## TOP focus today:
+
+- [ ] ## Today
+	- [ ] TOP focus today:
 	- [ ] Other priority tasks:
-- [ ] Time-block in google calendar
-- [ ] 
+	- [ ] Time-block in google calendar
+- [ ] ## Tomorrow
+	- [ ] ...
+- [ ] ## ...day
+	- [ ] ....
+- [ ] ## U
 
