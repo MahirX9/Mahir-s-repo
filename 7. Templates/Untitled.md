@@ -12,6 +12,7 @@
 # Thoughts / Brain Dump section
 its .... now. I need to do.....
 
+---
 ## Tasklist
 - [ ] ## Today
 	- [ ] TOP focus today:
@@ -24,5 +25,10 @@ its .... now. I need to do.....
 - [ ] ## Unscheduled
 	- [ ] ....
 	- [ ] ....
+---
 # Journal Section
 
+....
+
+---
+# Today's Learning
