@@ -31,4 +31,8 @@ its .... now. I need to do.....
 ....
 
 ---
-# Today's Learning
+# Today's Learning / quote of the day
+
+
+---
+# Tags 
