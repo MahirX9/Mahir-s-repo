@@ -1,1 +1,7 @@
-2026-05-28 Thursday
+{{Date}}
+
+Key Things to Always Keep in Mind
+
+| Allah is  |     |     |     |     |
+| --------- | --- | --- | --- | --- |
+|           |     |     |     |     |
