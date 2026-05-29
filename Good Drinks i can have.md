@@ -7,5 +7,4 @@ Banana Milk Shake
 Green Tea
 Lemon Water
 Tea
-
-[https://youtube.com/shorts/1BwGLKkUIOk?si=8juu2qZ8bPJtZIbi](lemon)
+[lemonade Recipe](https://youtube.com/shorts/1BwGLKkUIOk?si=8juu2qZ8bPJtZIbi)
