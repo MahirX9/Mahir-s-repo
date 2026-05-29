@@ -1,3 +1,6 @@
 [[Caffeine and Coffee]]
 [[Food, Diet & Exercise]]
-#drinks 
+#drinks #diet #lifestyle 
+[[My Appearance & LifeStyle]]
+
+Banana Milk Shak
