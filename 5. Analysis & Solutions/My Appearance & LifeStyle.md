@@ -6,3 +6,6 @@ I must express this through my appearance & impression that [[Trustworthy Appear
 
 [[My Everyday Carry List]]
 [[I want to be a resourceful person]]
+[[Productivity Notes]]
+[[List of Good Habits]]
+
