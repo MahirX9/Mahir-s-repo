@@ -1,0 +1,1 @@
+In the morning, for first 90 mins brain is clear of Adenosine which builds up throughout the day and signals us that we are tired. Caffeine competes with Adenosine and has half life of 6 to 12 hr
