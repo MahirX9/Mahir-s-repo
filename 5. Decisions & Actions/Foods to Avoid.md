@@ -3,3 +3,5 @@ Gorur Mangsho with Extra Spice. And, if combined with parata/bakorkhani or biriy
 Chicken nuggets, balls - Bad oil, 
 
 [[Food, Diet & Exercise]]
+
+#diet #food #avoid #bad_habits 

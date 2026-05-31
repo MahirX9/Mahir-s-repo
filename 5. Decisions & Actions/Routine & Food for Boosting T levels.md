@@ -12,7 +12,7 @@ Consider Doi-Chira with banana & Honey And Kalojira or adding some cashews or pe
 
 Stress- Cortisol destorys T. To destroy it you need vitamin C. Get malta or orange juice as a snack.
 
-[[Kichu Khabar Amar limit kora lagbe]]
+[[Foods to Avoid]]
 
 #productivity #routine #food #diet #POIS #testestorone 
 

@@ -14,7 +14,7 @@ tags: spaces://#symptoms
 5. sdsadsa
 6. [[Good Drinks i can have]]
 
-[[Kichu Khabar Amar limit kora lagbe]]
+[[Foods to Avoid]]
 
 Tbossting Diet from AI
 Breakfast- 2-3 Whole boiled eags with almonds and raisins, dates
