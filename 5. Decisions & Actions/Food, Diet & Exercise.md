@@ -21,3 +21,6 @@ Breakfast- 2-3 Whole boiled eags with almonds and raisins, dates
 
 Lunch - Beef, local fish with leafy green vegetables (palong shak) cooked in healthy fats 
 
+[[Bad Sleep Routine]]
+
+[[Routine for Boosting T levels]]
