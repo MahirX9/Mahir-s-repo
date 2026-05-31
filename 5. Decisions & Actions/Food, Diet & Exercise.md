@@ -23,4 +23,4 @@ Lunch - Beef, local fish with leafy green vegetables (palong shak) cooked in hea
 
 [[Bad Sleep Routine]]
 
-[[Routine for Boosting T levels]]
+[[Routine & Food for Boosting T levels]]
