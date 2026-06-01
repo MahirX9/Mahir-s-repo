@@ -1,0 +1,1 @@
+Amar takar value bujhte hole i think age daily ekta kanusher choltw, ekta familyr cholte ekhn essential koto khoroch hoy sheta bujhte hobe, shamne ki khoroch ashtese sheta bujhte hobe ar every
