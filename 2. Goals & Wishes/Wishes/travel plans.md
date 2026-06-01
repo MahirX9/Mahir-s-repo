@@ -13,6 +13,12 @@ Matita rssodt o kharap na.
 
 for **timing** 9 tarikher por fr8day saturday ke target korte pari
 
+Sajek er Megpunjiz meghpolli resort khub valo lagse bit age theke book dite hoy
+
+kaptai er nishorgo pod house valo lagse
+Ek diner tour dite pari sitakundo - guliakhali, chandronath
+
+Abar Srimongol jawa 
 
 
 
