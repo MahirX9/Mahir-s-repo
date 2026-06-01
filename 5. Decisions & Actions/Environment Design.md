@@ -10,6 +10,8 @@
 |            Mini Table Watch             | File Management Board (outlook updates, revisions) |
 |      Map of Chittagong, World, BD       |                   Invoice Board                    |
 |              Charging Dock              |                                                    |
+|                                         |                                                    |
+|                                         |                                                    |
 
 #productivity #tasks/buy 
 
