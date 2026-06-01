@@ -1,1 +1,4 @@
-Amar takar value bujhte hole i think age daily ekta kanusher choltw, ekta familyr cholte ekhn essential koto khoroch hoy sheta bujhte hobe, shamne ki khoroch ashtese sheta bujhte hobe ar everyday item er current orice er ekta updated list e chokh bulaite hobe and nijer ek ghontar kamai koto ber korte hobe. Tahole bujha jabe oituku taka kamaite anar ki proiman koshto korte hoise, shei poriman return ami pacchi kina ei ortho diye ja kintisi 
+Amar takar value bujhte hole i think age daily ekta kanusher choltw, ekta familyr cholte ekhn essential koto khoroch hoy sheta bujhte hobe, shamne ki khoroch ashtese sheta bujhte hobe ar everyday item er current orice er ekta updated list e chokh bulaite hobe and nijer ek ghontar kamai koto ber korte hobe. Tahole bujha jabe oituku taka kamaite anar ki proiman koshto korte hoise, shei poriman return ami pacchi kina ei ortho diye ja kintisi Tate
+
+#finance #money [[My Finances]] [[Daily Finance Tracker]] [[I self-sabotage my finances]]
+
