@@ -1,1 +1,1 @@
-Abbu #People/Ammu Old hoi jacche. #People/Ammur onek sharirik problem dekha dicche jegula keu attend kortesena. Abbu osudh khawacche thiki. Onnodike abbu nijeo ekhon osustho hoye portese
+Abbu #People/Ammu Old hoi jacche. #People/Ammu  er onek sharirik problem dekha dicche jegula keu attend kortesena. Abbu osudh khawacche thiki. Onnodike abbu nijeo ekhon osustho hoye portese
