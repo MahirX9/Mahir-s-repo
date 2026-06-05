@@ -1,1 +1,1 @@
-Although [[my]]
+Although [[My Job is Stessful]] i cannot seem to get out of it and sort of accepted it. I am not going out tyere and making things happen. Rather i am waiting for things to happen to me.
