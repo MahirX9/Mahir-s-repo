@@ -44,3 +44,5 @@ While Allah encompasses them from behind.
 But this is an honored Qur'an
 **Fii Lawhim-Mahfuuz**
 [Inscribed] in a Preserved Slate (Al-Lawh Al-Mahfuz).
+
+#quote #Quran #islam #oppression #palestine
