@@ -22,21 +22,21 @@ And they resented them not except because they believed in Allah, the Exalted in
 To whom belongs the dominion of the heavens and the earth. And Allah, over all things, is Witness.
 **Innal-laziina fatanul-mu'miniina wal-mu'minaati summa lam yatuubuu falahum 'azaabu Jahannama wa lahum 'azaabul-hariiq**
 Indeed, those who have tortured the believing men and believing women and then have not repented will have the punishment of Hell, and they will have the punishment of the Burning Fire.
-Innal-laziina aamanuu wa 'amilus-saalihaati lahum Jannaatun tajrii min tahtihal-anhaar; zaalikal-fawzul-kabiir
+**Innal-laziina aamanuu wa 'amilus-saalihaati lahum Jannaatun tajrii min tahtihal-anhaar; zaalikal-fawzul-kabiir**
 Indeed, those who have believed and done righteous deeds will have gardens beneath which rivers flow. That is the great attainment.
-Inna batsha Rabbika lashadiid
+**Inna batsha Rabbika lashadiid**
 Indeed, the vengeance of your Lord is severe.
-Innahuu Huwa yubdi'u wa yu'iid
+**Innahuu Huwa yubdi'u wa yu'iid**
 Indeed, it is He who originates [creation] and repeats.
-Wa Huwal-Ghafuurul-Waduud
+**Wa Huwal-Ghafuurul-Waduud**
 And He is the Forgiving, the Affectionate,
-Zul-'Arshil-Majiid
+**Zul-'Arshil-Majiid**
 Honorable Owner of the Throne,
-Fa''aalul-limaa yuriid
+**Fa''aalul-limaa yuriid**
 Effecter of what He intends.
-Hal ataaka hadiisul-junuud
+**Hal ataaka hadiisul-junuud**
 Has there reached you the story of the soldiers -
-Fir'awna wa Samuud
+**Fir'awna wa Samuud**
 [Of] Pharaoh and Thamud?
 Balil-laziina kafaruu fii takziib
 But they who disbelieve are in [persistent] denial,
