@@ -1,6 +1,6 @@
 Surah Al-Buruj: Verse-by-Verse
 
-*Bismillaahir-Rahmaanir-Raheem*
+***Bismillaahir-Rahmaanir-Raheem***
 In the name of Allah, the Entirely Merciful, the Especially Merciful.
 **Was-samaaa'i zaatil-buruuj**
 By the sky containing constellations
@@ -38,11 +38,11 @@ Effecter of what He intends.
 Has there reached you the story of the soldiers -
 **Fir'awna wa Samuud**
 [Of] Pharaoh and Thamud?
-Balil-laziina kafaruu fii takziib
+**Balil-laziina kafaruu fii takziib**
 But they who disbelieve are in [persistent] denial,
-Wallaahu minw-waraaa'ihim muhiit
+**Wallaahu minw-waraaa'ihim muhiit**
 While Allah encompasses them from behind.
-Bal huwa Quraanum Majiid
+**Bal huwa Quraanum Majiid**
 But this is an honored Qur'an
-Fii Lawhim-Mahfuuz
+**Fii Lawhim-Mahfuuz**
 [Inscribed] in a Preserved Slate (Al-Lawh Al-Mahfuz).
