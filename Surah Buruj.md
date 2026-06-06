@@ -8,7 +8,7 @@ By the sky containing constellations
 And [by] the promised Day
 **Wa shaahidinw-wa mashhuud**
 And [by] the witness and what is witnessed,
-Qutila as-haabul-ukhduud
+**Qutila as-haabul-ukhduud**
 Cursed were the companions of the trench
 An-naari zaatil-waquud
 [Containing] the fire full of fuel,
