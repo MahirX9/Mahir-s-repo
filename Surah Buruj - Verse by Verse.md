@@ -1,5 +1,3 @@
-Surah Al-Buruj: Verse-by-Verse
-
 ***Bismillaahir-Rahmaanir-Raheem***
 In the name of Allah, the Entirely Merciful, the Especially Merciful.
 **Was-samaaa'i zaatil-buruuj**
