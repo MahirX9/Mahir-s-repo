@@ -10,17 +10,17 @@ And [by] the promised Day
 And [by] the witness and what is witnessed,
 **Qutila as-haabul-ukhduud**
 Cursed were the companions of the trench
-An-naari zaatil-waquud
+**An-naari zaatil-waquud**
 [Containing] the fire full of fuel,
-Iz hum 'alaihaa qu'uud
+**Iz hum 'alaihaa qu'uud**
 When they were sitting near it
-Wa hum 'alaa maa yaf'aluuna bilmu'miniina shuhuud
+**Wa hum 'alaa maa yaf'aluuna bilmu'miniina shuhuud**
 And they, to what they were doing against the believers, were witnesses.
-Wa maa naqamuu minhum illaaa any-yu'minuu billaahil-'Aziizil-Hamiid
+**Wa maa naqamuu minhum illaaa any-yu'minuu billaahil-'Aziizil-Hamiid**
 And they resented them not except because they believed in Allah, the Exalted in Might, the Praiseworthy,
-Allazii lahuu mulkus-samaawaati wal-ard; wallaahu 'alaa kulli shai'in shahiid
+**Allazii lahuu mulkus-samaawaati wal-ard; wallaahu 'alaa kulli shai'in shahiid**
 To whom belongs the dominion of the heavens and the earth. And Allah, over all things, is Witness.
-Innal-laziina fatanul-mu'miniina wal-mu'minaati summa lam yatuubuu falahum 'azaabu Jahannama wa lahum 'azaabul-hariiq
+**Innal-laziina fatanul-mu'miniina wal-mu'minaati summa lam yatuubuu falahum 'azaabu Jahannama wa lahum 'azaabul-hariiq**
 Indeed, those who have tortured the believing men and believing women and then have not repented will have the punishment of Hell, and they will have the punishment of the Burning Fire.
 Innal-laziina aamanuu wa 'amilus-saalihaati lahum Jannaatun tajrii min tahtihal-anhaar; zaalikal-fawzul-kabiir
 Indeed, those who have believed and done righteous deeds will have gardens beneath which rivers flow. That is the great attainment.
