@@ -33,7 +33,7 @@ Rangamati and bandorban and cox e poricito lok ase. sylhet e nai
 
 Within Chattogram
 
-Zoom Resort (From bahaddarhat take a bus to .....80tk AB travels ,, from there take cng to go zoom resort)
+Panaroma Zoom Resort (From bahaddarhat take a bus to .....80tk AB travels ,, from there take cng to go zoom resort)
 
 sylhet
 https://www.facebook.com/share/r/1BUtdZ3Loz/
