@@ -22,11 +22,6 @@ Abar Srimongol jawa jay ekdinwr tour e. But diatance onek. friday giye satday ba
 
 Rangamati and bandorban and cox e poricito lok ase. sylhet e nai
 
-
-
-
-
-
 #People/SanZ 
 
 9 to 27 june
@@ -46,3 +41,7 @@ Sajek Resorts
 
 #travel #tour #resorts
 
+My List:
+
+1. Sajek Valley
+2. Bandarban Nilachol, ---nafakhum amiakhum
