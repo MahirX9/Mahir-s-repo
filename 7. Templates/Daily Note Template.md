@@ -1,15 +1,11 @@
 {{time}}
 ## Key Things to Always Keep in Mind
 
-| Imaan is weak. Start on time salat, Quran study | La haola wala kuwata Illah Billah Remember this | You Lack honesty and sincerity. Be sincere | Learn more. Buy a Tafsir hardcopy                                  |
-| ----------------------------------------------- | ----------------------------------------------- | ------------------------------------------ | ------------------------------------------------------------------ |
-| Discipline is in deep red. Fix imaan first      | Sleep Early, Wake Early                         | Aim for Excellence in every task           | Self Development, Everyday                                         |
-| Your Health is in Orange. fix discipline first  | Limit Sugar                                     | Walk and use the Bus                       | Avoid sedentary lifestyle                                          |
-| Career is in yellow. fix health first           | Target the LCT supervisory role                 | Get PMP now                                | Govt. Jobs and BCS?                                                |
-| Relationships are yellow. Fix health first      | Never Be angry at your parents                  | Treat your wife well, she is gift from God | Go out with others and to others home sometimes without invitation |
-
+To Fix health I need to fix discipline
+To be disciplined, I need faith. trust in Allah and sincere and honest work
+I need honesty and sincerity in my life
+And Self- Control. I have given too much power to the inner beast
+Fixing Iman, being sincere in my Ibadat should translate to all other parts of my life, so that I will be sincere and honest in my wordly conduct, and that would in turn result in a good life. Health is bad, career is stale, imaan is weak , parents are getting old, time to be a father. I am in a critical state of life.
 # Thoughts / Brain Dump section
-its .... now. I need to do....
 
----
-# Rollover to-dos
+
